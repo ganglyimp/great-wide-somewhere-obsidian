@@ -1,1 +1,7 @@
+---
+aliases:
+title: Home
+---
+
+
 Hi, these are my notes. They are not very good. Bone Apple Tea.
