@@ -1,0 +1,3 @@
+- A village hidden in a thick forest of giant trees within The Plane of Earth
+- Its inhabitants have never heard of Sigil before, which is incredibly odd
+- The inhabitants appear human, but seem to be partially made of plant-like material

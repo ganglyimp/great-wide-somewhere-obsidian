@@ -1,0 +1,38 @@
+**Date**: 03/14/25
+#Sigil
+
+---
+- [[Motz Potluck]] picks us up and teleports us back to Sigil
+	- We share what happened at the village with him
+	- Potluck believes that the amnesia in the village and [[Salem]]’s & [[Vodahmin]]’s amnesia
+	- Something something veils between planes is thinning? No clue
+	- Very checked out of this mystery thread. The mystery deepens?
+	- Potluck theorizes that some kind of timeline split(???) that could cause Vodahmin’s memory to get fucked
+		- “Are you aware of there being two of you?” No idea. Honestly. 
+- As we head back to [[The Smoldering Corpse]], we notice a cloaked figure tailing us
+	- They are hunched over and appear to be elven. Wrinkly green legs peeking out underneath. A bit large and terrible at sneaking.
+	- [[Scribe]] sneaks up on them and asks them what they’re doing. 
+		- Says [[Twoflower]], who he calls “Penty” owes them money
+		- Twoflower quickly explains the situation to everyone
+			- Penty is Twoflower’s parent and biological clone
+	- The figure is a troll named [[Viggo]]. Says [[Pentamerous]] cheated 700 gold from him.
+- We decide to discuss this with Viggo further at the Smoldering Corpse
+	- The bartender says that the [[Sup|goblin]] from last time is still sitting in the same spot in the bar. Asks us to “take care of it.”
+- Viggo says he’s from Bytopia.
+	- Penty offered him a lot of gold if he brought them to the astral sea. As they are about to give him money, they said, “Wait a second and I’ll get the money.” Penty never returned.
+	- Viggo doesn’t know the way back from the astral sea. Hitched a ride back to Sigil. Been looking for Penty ever since.
+- Salem reaches into the divine to try to scry Penty’s location
+	- Sees a vision of Twoflower pouring over a tome of Planescape legends and myths. They appear to be in some small village
+	- Then, Salem sees a city of metal and dark stone structures. Incredible works of art in the street, merchants, craftsmen, all swept up in a veil of flame.
+		- Twoflower recognizes this as the City of Brass, located on the Elemental Plane of Fire. 
+- Twoflower decides that it’s important that the party tries to find Penty. They’ve made a lot of enemies and it’s only a matter of time before someone kills them. 
+	- It’s important for funeral rites that Penty dies close to home. Twoflower doesn’t elaborate beyond that.
+- Viggo has no money, so we set him up with a job with the loitering goblin
+	- The goblin has no money to offer, and has a vague job that involves digging for gold somewhere
+	- Salem tries asking [[Barkus]] the bartender if he wanted to hire Viggo a job as a bouncer
+		- Barkus doesn’t have an opening, but directs us towards a bar with a secret fighting pit (this is probably the [[Bottle & Jug]])
+- The goblin’s name is [[Sup]]
+	- Salem walks over and decides to interrogate the goblin. Senses that someone put him up to this, or told him to get people’s attention
+	- Says “boss” told him to gather people for a “job”
+	- Salem told him to leave the bar and return tomorrow
+		- Wrote a note signed with his (Salem’s) name saying as much so that Sup’s boss won’t get mad at him

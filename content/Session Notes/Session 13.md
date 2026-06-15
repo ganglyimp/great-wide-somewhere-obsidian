@@ -1,0 +1,53 @@
+**Date**: 01/17/25
+#TheRock
+
+---
+
+- More things to tourism (sorry wasn’t really paying attention)
+	- Some fancy restaurant?
+		- Might need to clean ourselves up for that
+	- A public library that has like some magic tomes: Library of the Spheres
+	- An observatory?
+	- The Guild Market
+- [[Scribe]] uses her magic masquerade mask to summon a magical tux over her armor. Wow problem solved!
+	- Scribe emphasizes that she does not discriminate over gender in her horny maledictions. Legs are optional.
+	- Scribe says that she may be illiterate
+- We decide to go to the magic library 
+	- There’s like this weird monkey man transcribing things like crazy
+	- Explains how library is organized
+		- Right side has information on all of the Outer Planes. Arranged in order of the Spheres. 
+	- Left side (more rustic looking side): Toriel information (like the big fat human world underneath everything else)
+- [[Twoflower]] asks the weird monkey librarian about books on parasitic fungus local to Bytopia. [[Salem]] is worried about the implications and decides to tag along.
+	- Monkey library pulls out “Fungus of Bytopia”
+	- Monkey says people call him Clamber
+	- Not able to find an exact match. Most fungus in Bytopia is relatively benign. A lot of these entries note there is some debate on whether these fungi are native to Bytopia or note
+		- There’s two planes in Bytopia. Pretty fields (Dothion). And craggy mountains (Shurrock). 
+		- Fungus “native” to Shurrock may not really come from Bytopia. Lots of plants with influence from other positive or negative planes. 
+		- Most invasive fungus seem to come from either Pandaemonium (with spores attuned to riding winds). Vast majority come from the Abyss (chaotic evil demon realm)
+	- Upon hearing all of this, Salem tries to scry lore from his divine sources
+		- There *is* a demon prince of fungus and rot, [[Zuggtmoy]], It’s a long-shot, but it’s something. Adds credence that this may be some kind of abyssal corruption.
+		- The Abyss really likes to punch into different dimensions. 
+- Meanwhile, Scribe looks to find unbiased on her god, Ragathiel, and [[The Scribes of Ragathiel]] 
+	- Can’t find much since she’s currently in the wrong dimension
+	- Finds a small blurb about Ragathiel in a book on mythology
+		- Ragathiel is a being of duty, vengeance, and knighthood. Also associated with camaraderie and brotherhood. Lifts people up and brings light to his allies. Takes in not just knights and crusaders, but also takes in the marginalized and the falsely accused. 
+			- Less zealous than the version Scribe was brought up with 
+	- So then she decides to look up resources on cults because fuck why not. Coming to a lot of world shattering realizations today. 
+		- Finds an account of the “Scribes” who worship the “General of Vengeance”
+		- Noted as a dangerous and violent group who frequently target those of ancient grudges for any minor slight. 
+		- Sees a lot of “kidnaps and indoctrinated their members.” Tend to target those born with a particular ancestry or magical talent. Maybe those born on a particular date. 
+	- Given these revelations, she decides to leave for some air. Maybe down that bottle of liquor she bought. 
+		- She cannot handle her liquor and begins to hallucinate. 
+			- THERE! LOOK! CRAWLING DOWN THE CHIMNEYS GREAT BLACK CROWS SCREECHING AT THE VILLAGE ON FIRE VILLAGE ON FIRE
+	- And now [[Vodahmin]] decides to look into Mount Celestia
+		- Looking for current events. Maybe a library isn’t the best place for that. 
+		- Oh whoops I kinda tuned out for this bit. Sorry Vex. I think he found something that was super relevant to his deep lore. Golden worms?
+- Salem + Twoflower see Scribe stumble out of the library and not return for a while. They decide to check in on her. Vodahmin also sees them leave and decides to check it out too. 
+	- As Salem and Twoflower approach, Scribe throws herself prostrate and begs them for forgiveness for all of the blood she has shed
+	- She tries to deflect on what’s going on, but Vodahmin calls her out on that
+	- Salem: “Listen, you tell your doctor everything and the cops nothing. Now, I’m your doctor, so don’t you gaslight me.”
+		- She barely says anything
+	- Scribe and Twoflower agree to swap secrets
+		- Scribe says she’s deathly afraid of spiders. **This is a lore fact.**
+		- Twoflower talks directly about their lethal fungal infection
+- Oh, no! The play is about to start!

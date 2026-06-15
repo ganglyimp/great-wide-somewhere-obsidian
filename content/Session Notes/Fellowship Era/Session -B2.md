@@ -1,0 +1,39 @@
+**Date**: 01/28/24
+
+---
+
+- Heading to where the duergar dwell 
+	- As we descend, a strange mist begins to envelop our ship, making it hard to breathe 
+	- Pass by a graveyard of Spelljammers 
+- In Tuldanin
+	- See a flickering light in the distance, head towards it
+	- A booming voice asks us to identify ourselves, turns out it’s a female duergar scavenger (Menda) who’s cousins with Romulus
+		- She doesn’t want us to hurt Romulus, since he was “just being an idiot” trying to scrape together money 
+		- She says to take the hands of Romulus’s half-brother, Pelesaunt, says he’s an asshole
+			- Pelesaunt was the one who came up with the robbery scheme
+			- Hanging out in Hammergrim, one of the cubes with a big gash in the side
+		- Says some angels of Hor passed by recently, heading to Mechanis, Doom Court
+		- She gives us a locket (press the right eye, then the left eye as proof that Menda sent us)
+		- Actually Menda decides to come with us
+- Heading back into the ship, smell a toxic brimstone burning scent 
+	- We see the demon ship again, helmed by that demon guy 
+	- We immediately engage in battle
+	- The [[Scribe]] gets close to the ship’s helm and it begs her to release it from its servitude 
+	- We end up killing the demon and his crew
+- Talking to the boat wheel, who seems to be a cursed soul trapped in the boat? 
+	- We name him Gregor 
+	- Said he remembers falling into the pit of hell, crew was killing off and he was refashioned into a boat
+	- We couldn’t figure anything out, but allowed him (the sentient boat) to tag along
+- Arrive in Hammergrim
+	- As we land, we get approached by a fleet of ships
+	- Dalithro (a duergar guard) boards our ship, Menda isn’t honest about why we are here
+	- Menda leads us to the bar that Romulus & Pelesaunt is holed up in
+- Approaching Romulus & Pelesaunt
+	- Break into the private room their in, see three figures (Romulus & Pelesaunt)
+		- Third guy is some cloaked figure
+		- On the table is an odd scroll of shifting runes
+		- The cloaked figure leaves in a puff of smoke that smells faintly of brimstone
+	- We figure out that the devil that they’ve been working with has enchanted the dice, and tricking Romulus into using the trick dice
+		- The gold scroll was collateral they gave the devil as part of a deal to restore their clan to their former glory 
+		- We decide to retrieve the scroll from the devil and take his hands instead
+	- We take the stolen money back to Silverbane and try to ask for more time to get the devil’s hands

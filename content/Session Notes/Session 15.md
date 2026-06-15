@@ -1,0 +1,48 @@
+**Date**: 02/14/25
+#PlaneOfEarth 
+
+---
+
+- We are back in [[The Smoldering Corpse]]
+	- The bartender, [[Barkus]], gives us a letter that he said a gnome left for us
+		- [[Motz Potluck]] who [[Salem]] and [[Vodahmin]] talked to ages ago about their amnesia.
+		- Note says he has some leads for them.
+	- The notice board has only a single note on it left it by a [[Sup|goblin]], asking for magical help involving “snovels”. 
+- We head to the professor’s office
+	- He gives Vodahmin a draconic amplifier
+		- When Vodahmin wears it, it changes colors to gold and red stripes
+		- The professor has no idea what that means, requires further study
+	- Salem told him before that he’s under the influence of a necromancer for the past two years
+		- Since Salem died to a necromancer 
+		- Motz shows Salem an orb that shows an empty battlefield, and then hoards of dead soldiers rising from the dead
+		- Motz has heard of this necromancer collecting dead soldiers from all over
+		- Suggests that we seek out this necromancer to get more information 
+	- We ask if we could help out the professor in any way
+		- Tells us that a lot of refugees have been coming to the [[City of Ice and Steel]]
+		- These refugees are beings of wood and steel who said their home had been destroyed
+		- As we’re leaving, Scribe has a word with the professor in private
+			- She asks for help with dredging up forgotten memories to help her remember her “real” name
+- When we go into the market, Salem buys a vial of undead healing 
+- We meet the guy who will teleport us to the CITY with like the refugees or something. Sorry I got distracted. He teleports us to a pleasant looking canyon.
+	- There’s an ominous looking black tower on the horizon
+	- Our first destination is [[Roothold]]
+	- This plane is home to a number of subterranean entities. Says we’ll mostly be fine
+		- If we hear any rumbling, just stay still until it passes
+	- We are now stranded on the Plane of Earth 
+- It’s a very long, long trek to wherever we’re heading
+- We see a very artificial circle of woods and decide fuck it let’s cut through it
+	- It’s unnaturally dense and the trees stretch 400 feet tall
+	- As we wander through, we hear people talking, water splashing
+- When we break the tree line, we come into a village in the middle of a clearing 
+	- The people turn to face us with a look of confusion and fear
+	- They seem confused, and have no idea what Sigil is
+	- Oh is this the guy we’re supposed to talk to? Fuck I was tuning out during that part
+		- Oh they’re the people that forgot their memories during that incident that made Salem and Vodahmin forget their memories too
+		- And that’s what the professor was investigating
+	- The people appear human, but have like plant hair
+- After a bit of hesitation, we’re brought to a building in the center of the village to talk to this like statue guy
+	- He’s name’s [[Y’tash]], I think???
+	- Bro I’ve just been blanking for this entire fucking session 
+		- There was a long winded discussion on something 
+	- Salem asks him about his own experiences of losing connection to his goddess and gaining connection to something larger
+		- No further details to offer. Just some words of affirmation.

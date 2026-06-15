@@ -1,0 +1,1 @@
+- An abandoned manor at the edge of Phandalin

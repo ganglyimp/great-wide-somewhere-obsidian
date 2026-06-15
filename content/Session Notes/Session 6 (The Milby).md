@@ -1,0 +1,42 @@
+**Date**: 06/30/24
+#TheMilby
+
+---
+
+- [[Twoflower]] was out on some errands before joining up with the rest of the group (who were brunching)
+	- They go together to the blacksmith ([[Avos]])
+	- Avos also appears to be traveling in the same passenger ship that we’re going on for a job
+	- We decide to travel with Avos to the ship 
+- We take a portal to Sylvania, a city of trees populated with fey
+- Twoflower and [[Salem]] try harassing people in the street to gather more information about the The Milby
+	- Twoflower harasses a rich looking frog-man, and he mentions that The Milby is owned by a dwarf and they were leaving in a hurry
+	- The ship captain is named [[Barden Brouxdouck]], a dwarf with light orange hair
+	- There was some slight commotion around the ship that made it want to leave early, details vague 
+	- People talked about the “unsightly profile” of the ship, which takes the shape of a whale
+		- The ship is relatively large, like a large yacht 
+	- The ship already has a large security team already from people from all different races
+- [[Scribe]] and [[Vodahmin]] seek out [[Bostin]] (who lives here)
+	- She helps them locate the ship and notes that they are bringing a lot of cargo onboard
+	- She offers assistance for healing the injured or as arbitrators of competition 
+	- She says that when we return, she’ll provide us with a better method of contacting her
+- We all meet up at the ship, and get put to work by Barden the dwarf
+- He takes us onboard and gives us his on-boarding spiel 
+	- This voyage will take 4 days
+	- We’re allowed to wander the ship as we see fit when not on shift
+	- We’ll be given three meals a day along with the passengers
+	- Keep an eye on the folks on the promenade, and try to make ourselves “sparse but friendly”
+	- We’re not allowed to use the pool
+	- Their primary means of defense is running away. If we have any unwanted passengers or boarding parties, it's our job to “take care of them”
+	- We get half payment when we get to our destination, half when we get back
+- We get introduced to the crew
+	- The captain is Captain Barden Brouxdouck
+	- The drow is [[Volthovir Kron’Tavarr]], captain of the mercenary group bought on for security
+	- The kobold, probably a bit on the older side, is named [[Scrip Fasthammer]]
+	- The gif (hippo guy) is [[Douglas De Brujin]], but prefers to be called Dumplin
+- Dumplin recognizes Scribe, and moves to talk to her in private
+	- Dumplin knew Scribe back when she first left her old cult
+	- Mentions that the ship is transporting a special VIP passenger, a female dwarf
+- We explore the ship
+	- Cargo Deck
+	- There’s an elevator that brings cargo to the deck above, shouldn't be under it
+	- There’s a finicky lever at the end of the room that should also be avoided

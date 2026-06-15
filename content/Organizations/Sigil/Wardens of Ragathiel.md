@@ -1,0 +1,4 @@
+- Originally based out of the City of Brass in the Plane of Fire
+	- Vigilante types that seemed to be well-liked by the people, not so much by the Sultans
+- We aid the Wardens in helping them smuggle a group of slaves over to Sigil (Source: [[Session 38]])
+- Closely allied with followers of Feronia, goddess of freedom, fertility, and destruction. Feronia is the mother of Ragathiel

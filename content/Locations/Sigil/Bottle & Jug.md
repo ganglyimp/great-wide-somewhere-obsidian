@@ -1,0 +1,2 @@
+- Has a secret fighting pit in the basement
+	- To get in, refer to the pit fiend as "Your Honor"

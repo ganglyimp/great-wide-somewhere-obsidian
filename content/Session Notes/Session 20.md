@@ -1,0 +1,35 @@
+**Date**: 04/25/25
+
+---
+- While the party was out helping the squire, [[Twoflower]] stayed back to try to get more information from [[Sup]] the Goblin
+	- Mentioned that his boss was mad “that it took so long”
+	- The boss looks forward to us digging the holes because “the bodies are starting to stink”
+	- Not a lot of goblins around, so Sup has been working hard setting up traps in the cave and “tidying things up”
+	- Says there’s one big boss dog body, many small goblin bodies, and two human “bodies from road” that needs to be buried
+	- Their base is in some kind of cave in the forest
+- Sup insists we go to the “wet place” with him to at least talk to his boss
+	- We walk down a road, and then go through a gate, finding a puddle underneath a leaky roof. This is the “wet place”.
+	- He jumps into the puddle and disappears underneath it
+	- It’s a magic portal.
+	- As we’re going through the magic highway, a sudden current takes us down the wrong path
+- We emerge in a shallow riverbed and hear a waterfall and soft distant chanting. It’s completely dark.
+	- The group of creatures speak a language we don’t understand. One of them step into the light, revealing themselves to be a fish man.
+	- The fish man who approaches holds a bird staff, indicating they practice some form of animism
+	- We see a gigantic gold fish further downstream, tail down, face pointing straight in the air.
+	- As Vodahmin approaches with his torch light, the other fish men begin to chant louder
+		- They chant “[[Goslipps Glugiath]]”
+- [[Salem]] tries to reach into the aether to glean lore about the giant goldfish 
+	- Salem sees a vision of a goldfish that starts off very small and then continues to grow as it continues to eat
+	- As it amasses mass, it begins to take itself an aura of the divine. It dives deeper and deeper into the ocean and soon finds a group of fish men who begin to worship it
+	- It hungers for more worshippers
+	- It ends up in a cave too small to fit its body and ends up trapped in it. The goldfishes worshippers keep it alive by tending to its needs
+- Twoflower & Salem want to try to convince the fish men to let Twoflower touch one of their foreheads (for Join Pasts)
+	- Salem makes a big show out of dropping to his knees and shouting the name of the goldfish
+- Suddenly, we hear a deep voice boom into our heads. The voice of Goslipps Glugiath.
+	- He says we are worthy of being prophets of his name. And asks for help getting through the hole he’s too big to pass through. He senses more followers beyond
+- Twoflower realizes these fish men are Kuatoa who can create gods out of pure belief
+- Twoflower & Salem just Join Pasts with the Kuatoa priest, implanting the idea of a unshackled and free Goslipps, whose body is jelly and cannot be shackled by any bound
+	- The priest gives Twoflower a driftwood staff with the visage of a lobster carved into it
+	- We perform a dramatic “unbinding” ritual to really sell the point
+- Goslipps undergoes an immediate transformation, skin unbinding from it, glowing gold and taking on a spiritual and ephemeral form. It lifts into the air and floats around us
+- Before we leave, Goslipps tells us that if we ever find ourselves in the Plane of Water, we only need to say his name and he will come to our aid as an ally

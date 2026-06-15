@@ -1,0 +1,3 @@
+- Group of bandits who sulk around Phandalin
+- Been using [[Tresendar Manor]] as a hideout
+- Have been hired by [[The Black Spider]] to help him hunt out the Forge of Spells

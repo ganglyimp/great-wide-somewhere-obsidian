@@ -1,0 +1,3 @@
+- An exterminator company located in Sigil
+- We informed them about the infestation of cranium rats. They are impressed with Vodahmin's exterminating prowess and offers him a job as an exterminator (which he declines)
+- We left them our contact information if they have any updates on the cranium rat situation (Source: [[Session 18]])

@@ -1,0 +1,31 @@
+**Date**: 09/14/25
+#SwordCoast 
+
+---
+- As we return to Phandalin, notice a bag of [[Gundren]]’s stolen goods at the smithy. 
+	- So we know where Reverence ended up
+- We take [["Vi"|the doppelganger]] to the Townmaster’s Hall
+	- We end up imprisoning the doppelganger in the dungeon under [[Tresendar Manor]]
+	- When [[Twoflower]] offers them some water, the doppelganger balls up their fists in anger, silently vowing their revenge
+- We tell the [[Harbin Westin|townmaster]] that the doppelganger may try to disguise themselves as us. Our secret passphrase is “Buttercup”
+- We (with Gundren) meet up with [[Sildar Halwinter|Sildar]] at the orchard, who is teaching [[Droop]] how to harvest apples from trees
+	- We catch up and tell Sildar all that has happened
+- Gundren decides to rest up in the inn before we head out to the mines in the morning
+- We take up some odd jobs in the meantime, and hear some rumors
+	- While at Harbin Westin’s home, the former adventurer tells us to head east, towards the mountains
+		- Some prospectors have been chased off by possible some undead
+		- Old Owl Well, an old watch tower. A relic of an old by-gone empire. Might be connected.
+	- While at Alderleaf Farm, the halfling, Kelin, says her druid friend ([[Reidoth]]) went missing.
+		- It’s a two-day hike from here to Thundertree. But they’ve been gone for 6 days 
+		- Was helping with crops, but then heard a disturbance from up north. Some kind of natural disaster. Mentioned going up to Thundertree. Said he'll will come back once it’s resolved, but hasn’t been back in a while.
+		- Some folks coming from up there talk of game that has been rotted from the inside.
+			- Maybe related to what we saw happen to that ogre
+- We’re stopped by Sister Gaerael, the elven priest working to restore the Shrine of Luck
+	- She’s recently been contracted by some higher-ups in her Order. She’s supposed to go deal with a banshee up north near Conyberry, but she’s been too busy to get up there on her own. 
+	- Wants us to take on a diplomatic mission for her. Wants us to parlay with the banshees. Mostly wants some specific information. 
+	- Wants us to ask about a spellbook that was held by a famous mage, Bogentle. 
+	- Agatha the banshee may know where this spellbook may be
+	- Will need to offer something to Agatha. A tribute or knowledge. 
+		- She gives us a lockbox that contains a jewel-encrusted comb to offer to Agatha. 
+- We decide to go on a sidequest-palooza, taking a circuit around the Sword Coast to hit all of the sidequest hot spots
+	- We invite the beginner adventurers, [[Able]] and [[Helga]], onto our circuit

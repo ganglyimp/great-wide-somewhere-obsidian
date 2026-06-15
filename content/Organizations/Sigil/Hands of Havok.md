@@ -1,0 +1,4 @@
+- Anarchist group in Sigil, loosely organized group of self-motivated individuals who vaguely stand for chaos and freedom
+- Headquartered in the Plane of Limbo (chaotic neutral alignment)
+	- Not aligned to any particular religious group. Kinda beholden "for the people, by the people, at the whims of the people"
+	- Tends to include people like smugglers and arsonists

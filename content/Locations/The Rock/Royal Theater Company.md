@@ -1,0 +1,2 @@
+- A tiefling musician, [[Vivian Valentine]], that [[Salem]] met on The Milby tells him he should try to perform here, because his skills are "divine"
+- When Salem visited the theater, he impressed the acting troupe with his impromptu busking skills 

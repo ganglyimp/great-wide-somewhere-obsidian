@@ -1,0 +1,3 @@
+- It's actually originally called "The Arena of Frun", but the R has faded off the sign. It's a fighting arena. Also home to a good deal of sports betting.
+- Named for Frun, one of the old "princes" of the rock who liked fighting so he made his own little arena
+- [[Finnegan Bartholomew]], one of the workers there, mentioned they were bringing in some terror-birds for an upcoming "Trial of Beasts" (Source: [[Session 12]])

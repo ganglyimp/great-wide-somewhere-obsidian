@@ -1,0 +1,2 @@
+- Large castle that lies a bit to the east of Phandalin. Base of operations of [[King Groll]]
+- After the dead of King Groll, the remaining goblins unionized together and took control of it

@@ -1,0 +1,42 @@
+**Date**: 03/10/24
+#Sigil
+
+---
+
+- Head into a bar called [[The Smoldering Corpse]]
+	- The bar owner, [[Barkus]], was staring us down, and then walks over to us
+	- He wants to hire us to do a job
+		- Looking for an imp (small red thing, a bit older and beat up looking) named [[Zag]], racked up a bit of a bar tab and needs to pay up
+		- Beholden to a number of devils, notably one in the [[Bottle & Jug]] down the road
+			- He drank them nearly dry too as well
+	- May also be near [[The Grease Pit]] (restaurant)
+	- [[Fell’s Tattoo’s]]—may also know something (does not speak, communicates through illusion)
+- We head to the Bottle & Jug
+	- Take to a pit fiend if he knows about Zag
+		- Apparently the bar has a secret fight club downstairs
+		- Zag’s been banned from this bar
+		- Seen around [[Bleak Cabal]], a charitable faction that works out of the gatehouse. Kinda like a rehab center. 
+	- Talk to the barkeep
+		- Zag’s been trying to join the [[Hands of Havok]], might be lingering around their territory 
+		- Been running this bar a tab of 17gp
+- Head to Fell’s Tattoos for more info
+	- Zag’s also been stealing from the Hands of Havok
+- We head over to one of their warehouses and talk to the niflits guarding it
+	- Their names are Hume and Zume
+	- They agree to let us track Zag to see if he’s been stealing 
+	- While we wait for him, we help them load their packages
+- We follow Zag as he pulls the wares into the Night Market (transformed into a spider)
+	- [[Twoflower]] and [[Vodahmin]] aren’t very subtle, and get noticed by a half-elf guard (Twoflower names him Jackery)
+		- We explain about Zag’s stealing, and he takes it seriously. 
+		- He comes with us back to the warehouse to investigate
+	- [[Scribe]] breaks off from the main group
+		- Zag took the money and ate half of it
+- We confront Zag at the warehouse
+	- Scribe scares the piss out of him
+	- Jackery wants to kill Zag, but we were able to talk him down to just a beating
+	- Jackery reveals to Scribe that his name is actually [[Callum]] 
+- Zag said he had a secret stash in the warehouse, but Vodahmin gets there first an empties the purse before Callum can investigate it
+	- Callum offers Scribe a discount at the night market as compensation 
+- Gives the money back to the two bars
+	- We get 10gp in compensation from the Smoldering Corpse
+	- At Bar & Jug, they give us the passcode for the fighting arena: referring to the pit field as “Your Honor”

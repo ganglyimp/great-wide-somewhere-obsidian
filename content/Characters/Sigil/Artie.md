@@ -1,0 +1,2 @@
+- Best friend of [[Pearl]]
+- Was crashing in Pearl's basement working on some magic rituals

@@ -1,0 +1,49 @@
+**Date**: 05/05/24
+#ElysiumBall #Sigil
+
+---
+
+- [[Scribe]] slinks away to the upstairs bathroom to meet up with [[Bostin]] 
+	- [[Salem]] and [[Vodahmin]] advices [[Twoflower]] to tail Scribe
+	- She meets two guards at the foot of the staircase. She fakes a story about an ogre attacking the partygoers. Twoflower secretly aids this distraction by making a noise with an arrow 
+- Downstairs, Salem and Vodahmin see the guards run downstairs and discover that Scribe was lying about the ogre attack
+	- One of the guards beckon for something in the ceiling—a small bird of some kind 
+	- The guards talk to a person wearing white armor, and the white armor person suggests that someone might have pulled a fast one over them. 
+	- The lady in white introduces herself as [[Frieda]], party security, to Salem and Vodahmin 
+		- The raven that came from the ceiling act as her covert security cameras
+	- Frieda gives off “less-than-mortal” vibes
+	- Salem and Vodahmin slink off to the bar
+- Scribe (and Twoflower) manage to get to the bathroom as they hear the clatter of chainmail approach back from the stairs (from the guards)
+	- Scribe heads in, and Twoflower keeps watch outside the bathroom door (unbeknownst to Scribe)
+	- Bostin says she doesn’t want to explain the “situation” twice, and Scribe finally realizes what’s going on 
+	- Meanwhile, Twoflower sees the sentry raven searching the upstairs area. Twoflower isn’t sure if they have been spotted, but feels that some trouble is coming. They find a more concealed place to hide out. 
+	- Scribe awkward tries to flirt with Bostin, and Twoflower comes into the bathroom five minutes later. Scribe finds out that Twoflower has been tailing her, and they have a brief argument about it… while the bathroom door is still open
+- Salem and Vodahmin decide to get to the bathroom by scaling the outside window. 
+	- Salem employs [[Omsoc]] for a distraction. They ask him to do the “flashiest thing you can think of” 
+		- Omsoc announces a “flash sale” of his goods, and throws a handful of wands up into the air, causing a chaos of flashes and light and small explosions 
+	- While the distraction ensue, Vodahmin, with Salem on his back, clamber up into a second story window 
+- Salem and Vodahmin finally join the rest of the party in the bathroom 
+- Bostin reveals that she’s trapped in an arrangement that caused her to be bound to [[Erudyne Vaughn|Erudyne]] 
+	- She and her friends, in the lower planes, were making a sport out of freeing enslaved individuals
+		- They ran into Erudyne, and he made a bet that he could free more people trapped by the contract of the lower fiends. If he won, one of them would belong to him. If they won, he would provide them information to help them free more people. 
+		- When Bostin agreed to this deal, Erudyne immediately freed all of his captives
+	- Since Erudyne is technically upholding a contract, he hasn’t done anything *wrong*. The real goal is to get the contract and figure out a way to get her out of it. 
+- We have two choices: wager Bostin out of her contract or find the contract ourselves and destroy it
+	- The contract is likely located in the third-floor office, which is blocked by infernal security measures
+	- Bostin reveals that Erudyne is part devil, the contract devil variety 
+- We decide to all sneak up to the third-floor office. We are confronted by a large, ornate door, with a contract pinned in the center of it 
+	- The contract for each statue lists the name of a border town on the outlands that links to a realm in the outer lands: Rigus, Ribcage, Torch, and Hopeless
+	- It looks like the statues have articulated arms, and we can move their quills to “sign” the contracts they’re holding 
+	- The main door is detailed with the arrangements of all the realms of the lower plane
+- Twoflower and Vodahmin try to enter the office from the roof. 
+	- Twoflower gets lowered by a rope by Vodahmin and manage to get into the main office through a skylight
+- Meanwhile, Scribe and Salem hear two footsteps approaching, one of which sound like stumbling bare feet 
+	- One of the voices belongs to Bostin. The other person sounds like the security specialist, Freida
+	- Bostin mentions that only fiends can pass through the office door
+	- Despite Bostin’s stalling, Frieda managed to beat the secret code out of Bostin
+- Salem decides to use his Ghost Voices card cantrip and casts it out the window, drawing Bostin and Frieda into the side bedroom they hid in 
+- Meanwhile, Twoflower grabs ten contracts that seem like they belong to celestial people and stuff them in their pants. Then Vodahmin lifts Twoflower out of the room via rope
+	- Twoflower explains the situation to Vodahmin and instructs him to use his magic to burn all the contracts, making them null and void. 
+- Back to Salem and Scribe. They hid under the bed and were almost immediately found out. Bostin, at least, was freed from her contract and immediately got the fuck out of there. 
+	- Frieda tells them that she will have to take them to her boss. 
+	- To be continued…

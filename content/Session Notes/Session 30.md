@@ -1,0 +1,44 @@
+**Date**: 10/12/25
+#SwordCoast #SideQuestPalooza
+
+---
+- We return back to Old Owl Well once again to deal with the undead situation
+	- [[Twoflower]] scouts into the tent to see a bald, tattooed man taking notes on an old ancient tablet
+	- The tablet appears to be something like official paperwork, very ornate and carefully carved 
+- [[Salem]] has an idea to strip down and disguise himself as one of the necromancer’s undead
+	- He still has the tattered clothes he was buried with underneath his robes. [[Scribe]] identifies it as civilian-grade armor and cleric robes
+	- Salem also has a grandpa moment, and completely forgets what we did the other day
+- Salem approaches the tent, as tattered skeleton, and runs into the necromancer
+	- The necromancer is curious about Salem’s origin.
+	- Salem gives him a note that says, “Made you look.” As he’s reading the note, Salem casts calm on him
+- We all approach him and start questioning him about the rampant necromancy
+	- Claims he’s not trying to raise an army of undead. They’re just here for protection. He’s more interested in researching an ancient civilization 
+- Salem starts asking about himself, like “See any talking skeletons lately?”
+	- Mentions that it’s mostly spectral undead that keep sapience. Similar to the “ashen ones”
+- Necromancer is trying to get more information on the mage that built the tower at Old Owl Well
+	- Says his name is Hamun Kost
+	- The Necromancer mentions that he wanted to talk to the old banshee for some information about the old texts he finds
+	- We convince him to accompany us to the banshee, instead of having him drag his small army of the undead over there himself
+- When we set down for camp, Scribe and Salem have a heart-to-heart about Salem’s recently resurfacing memory issues
+- We arrive at Agatha’s Lair. Hamun allows us to ask our question to the banshee first. 
+	- Salem offers her the jewel-encrusted comb in exchange for information about the location of Bogentle’s spellbook
+	- She said it was last in her possession 100 years ago, and it was traded off to a necromancer named Tsernoff of Erebor. 
+	- Hamun makes a similar offer (an ancient ring he claims will protect the wearer from evil) to the banshee in exchange for the name of the mage who constructed Old Owl Well.  
+		- Says the mage is named Arthendor. 
+- [[Helga]] and [[Able]] depart to relay the results of the banshee’s message back to the priestess. And we escort Hamun back to Old Owl Well, with a vague warning that we may need to return and deal with him if his undead continue to be a nuisance 
+- We head towards Falcon’s Hunting Lodge
+	- Once we arrive, we ask the hunters there about Thundertree
+	- The hunter we meet is called Gustav Steller, but we may call him Falcon
+	- Say that the person we’re looking for is likely dead. 
+		- There appears to be a blight on the land, a highly infectious disease
+		- There’s people with leather, scaly masks roaming the area. May be a dragon in the area. 
+		- The masked figures like to bring sacrifices as an attempt to appease the dragon
+		- The dragon is not the largest dragon the hunter has ever seen. Keeps a limited territory for now. 
+		- Thundertree itself has been abandoned for 30 years now ever since the eruption of Mount Hortenow. Ravaged by a special type of undead infused with fire from the volcano. 
+	- The chef’s name is Corwin. He makes stew for us. 
+- Before we depart from the lodge, Falcon warns us that the forest is also beset by giant spiders and tree spirits
+	- Advises us to approach from the South to avoid encroaching on the dragon’s territory
+- We cautiously enter the ruined town of Thundertree, slowly getting reclaimed by nature
+- Twoflower tries to scout ahead, but accidentally enters a giant spider lair
+	- We’re able to kill all the spiders easily
+	- We find a wrapped body inside the spider den. Appears to be a young elven man. Not the missing Druid. Maybe an unfortunate adventurer.

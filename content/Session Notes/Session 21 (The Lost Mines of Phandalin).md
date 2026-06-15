@@ -1,0 +1,34 @@
+**Date**: 05/30/25
+#SwordCoast
+
+--- 
+- We regroup and return back to the portal puddle, bringing [[Scribe]] along this time
+	- We emerge in a dimly lit cave
+- We see a bunch of goblin corpses scattered on the cave floor
+	- After [[Sup]] leaves, we perform an impromptu autopsy
+		- There’s an arrow sticking out the goblin’s neck. Looks like the arrow came from the city, aimed at a vital organ. Also magic wounds. 
+		- Lines up with Sup’s story that they were attacked a while ago by some travelers on the road
+- Sup calls us over to speak with his boss
+	- The boss is a large bugbear, petting the corpse of an arrow-riddled warg. 
+	- The boss is named is [[Clarg]]. The warg is named Ripper. 
+		- Clarg says the warg was killed by “road people—adventurers”
+- Clarg asks us that he wants help getting vengeance for his warg
+	- Their cave was attacked by a party of 4. The goblins managed to kill two of them. But “[[Helga|big woman with tusks]]” and “[[Able|small man]]” got away 
+	- They went to a nearby town called Phandalin 
+	- Crag asks as to bring us the head of the “small man”
+- As we help to bury the many bodies, we convince Clarg to let us bring the “road bodies” back to the town
+	- One body belongs to what looks like an amateur wizard with blue robes
+	- The second body belongs to a cleric, bears an amulet depicting a rising sun and a winding road
+	- Symbol of Lefander: the Morning Lord
+- While [[Scribe]] is helping Clarg dig Ripper’s grave, he tells her, “Clarg is improving cave. More traps. More deadly. Do not come uninvited.” After Scribe does not directly commit to his revenge request
+- After Clarg leaves us, [[Vodahmin]] looks at the cleric’s amulet and presses a button, revealing the sigil of Shar, an evil goddess of secrets. 
+- We arrive in the town, and ask a dwarven blacksmith about the group we’re tracking down
+	- He says that they’ve been harassing the people in the town, getting into fights in the town square
+	- Said they “ran for the hills”
+- Take the bodies to the Shrine of Luck to have the priestess there keep them for safe keeping
+	- Vodahmin decides to reveal his religious sigil of a silver dragon
+	- The priestess says that the party may be currently employed by a man named Sildar. Currently hiding out in the abandoned [[Tresendar Manor]]
+	- The orc and the half-elf were part of the original group that arrived. The tiefling arrived later on 
+- Asked her about how the shrine got destroyed 
+	- Some [[Redbrands]] walked into town and got into a fight with the adventurers. The scuffle caused a lot of collateral damage
+	- The adventurers killed three of the redbrands

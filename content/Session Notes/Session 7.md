@@ -1,0 +1,61 @@
+**Date**: 07/14/24
+#TheMilby
+
+---
+
+- The ship is smoothing sailing en route to Wildspace
+- [[Twoflower]] runs into [[Douglas De Brujin|Dumplin]] and has a brief conversation with him 
+	- Tries asking about his connection to [[Scribe]], but just says he knows her after her “fall from grace”, but doesn’t give much more information outside of that
+	- Dumplin also says he’s not associated with Scribe’s old “group”
+	- He’s being paid (very well) as extra security (like an air marshal) for this ship, but doesn’t really know why the ship needs so much extra security 
+		- Mentions he’s with Scrip & (other person?)
+- [[Scribe]] drinks her stress away at the ship’s bar
+	- She approaches a passenger on the ship who looks troubled
+	- His name’s [[Joseph Wedgewood]]
+	- He recruits her to help him with a project to create “instant paintings”
+- [[Salem]] and [[Vodahmin]] are in the cargo deck hiding from Scribe
+	- They have a quick chat with [[Scrip Fasthammer|Scrip]]
+		- He says he makes his own weapons, got a few from Dumplin, has quite a few tinkering tools on him
+		- Scrip used to be stewards for a great dragon (with his brother), but once the dragon was killed, he and his brethren stowaway-ed on the ship of the adventurers who killed the dragon 
+		- Scrip then found himself in a town of the hippo people, said the hippo were doing this weird ritual that caused one of them to go “kaboom” 
+			- He was probably describing a duel 
+			- The pistol he currently holds seems like a dueling pistol
+		- Says he’s friends with the mercenary elf [[Volthovir Kron’Tavarr|Volthovir]] , who has helped him get many jobs
+- Salem and Vodahmin have a private conversation alone (specifically excluding Twoflower)
+	- Vodahmin confronts Salem on the topic of “Salem is a literal skeleton”
+	- Salem says he’s been “cognizant” for about a month, and has been trying to keep his condition a secret
+	- Vodahmin warns Salem against keeping his condition a secret
+- While wandering, Twoflower eavesdrops on a conversation between Dumplin & Volthovir
+	- Suspicious of all the strangers being brought on as security
+	- Volthovir mentions that Twoflower seems familiar, reminds them of someone who “cheated” him a while back
+		- Personal Note: Probably Twoflower’s genetic clone [[Pentamerous]]
+	- After hearing that Scribe is being hired as Twoflower’s tour-guide, Dumplin mentions that Scribe seems desperate enough to “recruit”
+	- Asks if Scribe will be “a problem”, and Dumplin says that he can “take care of her”
+	- “Can’t let them… should keep an eye on them.”
+- Volthovir comes into the bar and encounters Scribe, they do a bit of flirting, more Scribe than Volthovir
+	- Volthovir, while Scribe’s back is turned, whispers something to one of the guards
+- Dumplin runs into Vodahmin and begins interrogating him as “friendly conversation”
+- Twoflower searches for Scribe and pulls her aside for a private conversation
+	- Scribe ends up spilling her beans on everything after Twoflower prods enough
+	- Scribe reveals she’s a nephilim (of Ragathiel), and has been abandoned by her previous “family” (who has kidnapped her and groomed her from birth into their cult)
+		- Has her wings cut off by them and left abandoned out on the street
+		- Dumplin was the first person who helped her out during her roughest period
+	- Scribe is incredulous at the idea that Dumplin may be considering to kill her
+	- Salem & Vodahmin hear Scribe’s yelling and join them in the room
+		- Twoflower fills them in on what happens and they all formulate a plan to investigate this further
+- Salem wanders upstairs to try talking to the captain to see whether he’s involved in the potential plotting
+	- Instead, he runs into Volthivar and has to awkwardly turn around 
+	- Volthivar appears to be guarding the captain’s quarters and says the captain doesn’t want to be disturbed
+- Twoflower and Scribe plan to rummage through Dumplin’s belongings to see if they can find anything suspicious. Scribe plans to act as a distraction 
+	- Scribe finds Dumplin in his room and makes up an excuse to go talk to him in a more private place
+		- Scribe apologizes for leaving Dumplin so suddenly, and says that she wants to reconnect with him
+		- Scribe senses some tension in Dumplin’s face and body, almost guilt
+		- Dumplin tells her “it’s better if you’re not involved”
+			- He doesn’t want to tell her because he doesn’t want her getting hurt
+			- “I’m not asking you to stand idly by, I’m asking you to bide your time.”
+				- He tells her the plan IN SECRET
+- Twoflower rummages through Dumplin’s belongings
+	- He has a standard adventurer’s kit, lots of bullets and black powder, assorted adventuring gear
+		- Chain, a lock, marbles, a climbing kit, lantern, etc.
+		- A small little trinket, like a broach, with runes on it
+			- Some kind of wind magic, will cast air bubble spell whenever the wearer enters a space that doesn’t have air

@@ -1,0 +1,50 @@
+**Date**: 07/28/24
+#TheMilby
+
+---
+
+- [[Scribe]] reconvenes with [[Twoflower]] and [[Vodahmin]], looking a bit out of sorts, but not saying any specifics 
+	- She vaguely says “keep an eye out” and returns to doing her rounds
+- We all meet up with [[Salem]], and he tells us he wasn’t able to talk with the captain due to the dark elf, [[Volthovir Kron’Tavarr|Volt]], guarding his door
+	- We decide to just keep to information gathering to get as much information about our situation as possible
+- As we break, we hear an announcement that the ship is coming to a landing for about an hour for lunch. 
+	- The ship is now partially submerged in the water as it lands in the middle of a lake
+- Scribe takes lunch and gets into a conversation with Volt. They mostly make small talk
+- Twoflower rummages around through the steerage quarters to see if they can find anything interesting
+	- Unlocks a footlocker that seems like it belongs to some guard that was hanging around Volt
+		- Find a scribbled schedule. The guards seem to have a pretty regular shifts, but a little lax on security at night (when everyone is sleeping)
+		- No scheduled blocks past 10AM tomorrow 
+- Twoflower goes back down to the cargo bay after hearing what sounds like a lot of workers leaving it for lunch
+	- Overhears a conversation between [[Scrip Fasthammer|Scrip]] and one of the guards
+		- “What are you going to do after all of this is over?”
+		- Scrip: “Enjoy the time it gives me. Maybe buy a better gun.”
+		- “Can we get a little look at what we’re dealing with?”
+		- Scrip: “Ehhh, might upset Volt. But might be good to ensure we’re not swindled.”
+		- “It’s a heavy thing, and I’m feeling adventurous.”
+	- More dock hands returned, and, seeing Scrip trying to pry open one of the crates, asks “Are we starting early?”
+	- Scrip opens the crate, and they hear a tiny little skittering laugh as Scrip says, “This should do nicely. Good news. We have not been cheated. Bad news. This will be very heavy.”
+		- Can see the glimmer of something gold.
+	- Scrip pushes the opened crate into the back of the cargo bay out of view, and they return back to their card game
+- Twoflower is able to relay what they found to Vodahmin
+- Scribe chats with Volt
+	- Volt mentions they would like to talk to Scribe some more and mentions that they won’t be on shift until they get to the night shift
+- Salem and Scribe discuss Salem taking over for the hired musician
+	- Scribe says she’s an excellent dancer
+	- Salem shyly asks if he can busk with the tiefling musician ([[Vivian Valentine]]), and she agrees
+	- They play the most beautiful ballade the ship has ever heard together
+		- She suggests that he goes to the [[Royal Theater Company ]]while they dock at The Rock since his skills are “divine” 
+- At the end of the day, the gang all gather to share information with each other 
+	- Once Twoflower reveals all the crime they uncovered, Scribe spills her guts on everything she was keeping from us
+	- [[Douglas De Brujin|Dumplin]], Scrip, Volt, the guards, and the cargo crew are all part of the scheme to rob dwarven artifacts from the cargo hold and steal some stuff from the dwarven ambassador on board
+		- This will happen at 10AM the next morning
+		- Dumplin asked for her to wait until the morning and have a fake fight with her so he has a convincing out 
+		- A man-of-war will dock with the ship to allow all the pirates to make their exit
+		- Volt will be in the captain’s quarters guarding the captain, and Scrip and the others will be in the cargo bay
+	- Scribe wants to try to convince Volt to let her into the crime scheme and act as a mole
+		- Salem and Scribe try to play up their money difficulties by having a fake fight within earshot of Volt
+		- The ploy works, and Volt invites Scribe into his private room
+			- Volt decides to invite Scribe into the big crime scheme (and to get the rest of the party to play along)
+			- He says that tomorrow there will be an attack on the vessel, and asks Scribe to ensure that it does without any loss of life on either side of the conflict 
+			- In exchange, he’ll provide the gold we were hired for plus additional coin. He also invites her and her gang into their little crime syndicate 
+	- Before the night ends, [[Joseph Wedgewood]] swings by to ask for Scribe’s help with his instant portrait device
+	- He takes a picture of each member of the party and a few group photos (and lets us keep the pictures) before leaving

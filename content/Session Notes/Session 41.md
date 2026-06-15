@@ -1,0 +1,63 @@
+**Date**: 04/12/26
+#Sigil
+
+---
+
+- [[Scribe]] (Tina missing) spends the day with the [[Wardens of Ragathiel|Wardens]], sorting some things out with her feelings about the [[The Scribes of Ragathiel|Scribes]]
+- We head out to the Hall of Information to see if Sigil has any welfare programs to help house the 80+ former slaves
+	- Getting housing is a long approval process. We aren’t willing to sponsor all the refugees. We decide to put them on the waiting list for now and see if we can find a private solution.
+- Heading back, we notice a dwarf outside the Wayfarer holding a sign saying, “Hireling in search of a home”
+	- His name is [[Bjorn Bearknuckle]], says he wants to go to Voracia in Galaria, in the material planes.
+	- Tell him we might be able to get him work with the Hellknight guy. He said he’ll come with when we visit him.
+- We head over to House Vitaron Estate to check in from the Hellknight ([[Avatus Vitaron]])
+	- Said he lost most of his staff after his previous master died and allowed them to leave
+	- Said he got a letter from the [[Hands of Havok]] asking about the situation 8 days ago. Hasn’t responded to it yet.
+		- Hands of Havok are an anarchist group who stand for chaos and freedom
+		- They also warned Avatus that he should leave the city. Apparently his previous master has been “taking people” who he has labeled as evil doers. 
+		- He’s looking for a “bad guy”, like a Wrecker, who might be able to provide him with information about the Hands of Havok. We tell him we know a guy named [[Callum]] who might be helpful (he’s the guy involved in like that warehouse mission from way back at the beginning of the campaign). 
+	- He said he could house some of the refugees in exchange for their labor as household servants
+	- Avatus says he’ll come out with us to find Callum and get some information out of him
+- Head over to [[Sir Elric]]’s Manor to check in on an old buddy of [[Salem]]’s
+	- Sir Elric of Taldor. Seeker of oddities and occult goods. 
+	- When he sees Salem, he collapses, something about Salem’s presence gives him head pain?
+	- Says he talked to Salem 6 months ago. He remembers Salem’s funeral, but also somehow remembers Salem was saved. 
+	- Salem tells Elric that he was investigating a necromancer, tried to stop it, and died. And then two months later, he “woke up.”
+		- Elric says he remembers commissioning a painting from Salem. 
+	- Elric says that Salem might’ve introduced him to Ilia. Hasn’t talked to anyone from the “Order of the Roses” since Salem’s funeral
+	- Elric says that whenever he looked at Salem’s old paintings, he felt a throbbing feeling in his head, like it was wrong for it to exist. 
+		- No one else in Sigil felt the same feeling when looking at those paintings
+		- He still has some of them in storage in his basement
+		- Paintings started to become “haunted” 3 months ago
+	- Elric takes out one of Salem’s old tapestries, a commissioned piece featuring a starfield and scattered occult symbols
+		- Salem remembers both making this piece, but also remembers not making it
+		- As Salem reaches out to touch the tapestry, a bright light begins to form around him, like the phantasmal flesh of the man he used to be
+	- [[Vodahmin]] tells Elric there seems to be a lot of people split between two paradox versions of themselves
+		- Vodahmin has a realization that his “other self” may be starting to influence himself, and then sulks off to deal with that
+- [[Twoflower]] asks Elric, the occultist, about their fungal infection
+	- Normally, takes a week for this kind of infection to kill a mortal
+	- Its growth was likely slowed by the effects of being in Bytopia
+	- The fungus may be awoken by offerings of mortal blood, which can be offered by simply imbibing it
+	- Surgically removing the fungus may have some consequences such as lower quality of life
+		- Could find a medic in Arcadia 
+	- Exorcism could be equally risky, due to how deeply nested the fungus is in Twoflower
+	- Says the best route could be to find a way to bind it? Make it a servant. 
+		- If Twoflower controls it, could be an opportunity to bring about access to demonic powers
+		- Likely can make a psionic connection in it
+			- In the Grease Pit, a friend of Elric, **Phillip**, can help Twoflower talk to the fungus.
+		- Elric can help with binding it. A failed binding could agitate it and accelerate its growth. 
+	- Twoflower agrees to trying a binding ritual. Elric says to come by again tomorrow.
+- Vodahmin and Salem have a private moment together. Have a genuine heart-to-heart.
+	- Vodahmin asks Salem if, after being in his new skeletal form, he has ever felt attraction
+	- Salem answers, “Yes, but no.” Say what was there now feels muted
+		- Salem is cockless.
+	- Vodahmin says his own feelings of attraction feels foreign and distant. 
+		- He used to be a dragon, so I guess it’s beastility to wanna boink a humanoid?
+		- Vodahmin does not identify with the whims of his cock. Tragic.
+	- Salem tells Vodahmin to follow his heart. 
+	- Vodahmin clarifies there’s nothing specific that’s spurring this. He just had an idle thought after witnessing Scribe fumble with Bostin so terribly the other day
+- Twoflower comes out and asks Salem to give them a quick medical scan
+	- The fungus doesn’t seem like it has spread. Maybe its aura seems a bit more vibrant, more active. 
+	- Not really sure why. Could be the heat from the City of Brass. Could be all the recent violence Twoflower has committed. 
+- Salem briefly returns to Elric to get a briefing on Twoflower’s treatment plan
+	- Salem asks Elric if he’d be willing to mentor the fledgling Hellknight, Avatus
+	- Elric doesn’t feel comfortable with that and politely declines

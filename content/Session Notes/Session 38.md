@@ -1,0 +1,49 @@
+**Date**: 03/01/26
+#CityOfBrass 
+
+---
+
+- [[Twoflower]] wakes up. No evil orb dreams whatsoever. 
+	- [[Salem]] says that it would be a bad idea for him to hold onto the evil orb
+	- Salem **pinky promises** that if he were to ever turn evil, he would immediately inform Twoflower and kneel down for Twoflower to smack him in the head
+- First, we all head off to the Grand Bazaar to track down a lead for [[Vodahmin]]
+	- [[Scribe]] sees a stall of slavers and wants to do something funny
+		- The nefriti salesman’s name is Acrum
+		- She lightly threatens the salesman that her buddies might come over and slit his throat if he continues on with his business
+		- And the salesman threatens her back, “Know your place. Your captain wouldn’t be happy to hear that one of her soldiers wandered out from their little hovel.”
+			- He’s assuming that she’s part of the [[Wardens of Ragathiel]]
+		- Salem has to come over and practically drag her away to prevent her from swinging on the guy
+	- Head over to the Edible Menagerie, a part of the bazaar that’s filled with food stalls
+		- Vodahmin gives Scribe a talking down. Tells her to chill the fuck down and to keep a lower profile
+		- Scribe walks off to cool down. 
+		- We start asking around about [[Hyrayr]]’s strange client named [[Khrusaor or Krii Se Ov]]
+			- Seems to be a human man with blonde hair with an imposing presence 
+			- Dressed in grand silver armor, engraved with draconic designs. A well-liked but aloof person. A noble. 
+			- Seems like nobody has really heard about this guy for the past two months
+			- Supposedly was talking with [[Abdul-Qawi]], Grand Vizier of the City of Brass. Conflicting stories on what about. Seems like there were some grander arrangements afoot. Vaguely magic related.
+				- Was first seen in the City of Brass at the Vizier’s side maybe a year ago
+			- Also had dealings with a mage from the mage’s quarter ([[Yndri Ysalaa]])
+			- No one has any idea where he went. He’s a known planes traveler. People last saw him and the Vizier step out from a gathering, seeing a flash of golden light, and only the Vizier returned. 
+		- We then start inquiring about [[Pentamerous|Penty]]
+			- We come across a well-to-do nefriti wearing fine robes who says, “yeah, I know *something*”
+			- Been seen on a few ships, errand person for a few nobles. Friends with [[Nema Chorshi]]. Lives in one of the palaces up in the noble’s quarters, a sultan. Something like the Ashwind Palace
+			- Nema’s family owns a number of exotic creatures who they sell. Runs a slaver market stall. Likely runs the slaver stall that [[Scribe]] had beef with
+			- Last seen Penty maybe two or three months ago
+- Head over to the Fire Blossom Palace to follow the lead about the Wardens of Ragathiel
+	- Gets stopped by a guard at the gate, says to Scribe, “We don’t accept your kind here. Sultana will not be taking any visitors, will she?”
+		- A voice begins to speak to Scribe in her head. Tells her how to find the Wardens.
+	- The voice leads us to a secluded cave
+		- We meet up with the lady that was beaming mental messages in Scribe’s ear. A Efreeti. Explains that Scribe’s antics from earlier are a bad look for the Wardens who are already not really welcomed in this city
+	- We meet Captain [[Irene]] of the Wardens, who asks to speak to Scribe privately
+		- Scribe bears all about her cult upbringing
+		- Captain notes it’s strange that her cult leader called herself General, as that’s a title typically reserved for Ragathiel
+		- Says that she’s willing to embark out to search for the Scribes and put an end to them
+		- Says they might be skipping town soon, embarking on one last mission 
+		- Asks Scribe and our party to embark on a task to free some slaves. This operation is planned for tomorrow night. 
+	- Asked the Irene about Penty
+		- Says she heard a leshy may be working with a noble named [[Nema Chorshi]] (adds up with previous info). The Chorshis are very much involved in the slave trade, so the Wardens had many encounters with the Chorshis. 
+		- Leshy seemed to be a business partner. Wanted to get involved with a mage named [[Yndri Ysalaa]]. 
+		- Yndri tends to purchase a lot of “stock” from Nema. Does not tend to keep a lot of stock from Nema. 
+	- Asked the Irene about [[Khrusaor or Krii Se Ov]]
+		- Said she received a vision that told her that her time is limited. To expect the pariah of pariahs. And saw a vision of a dragon.
+		- At that point, we decide to take the conversation private and explain our whole deal to her
