@@ -43,7 +43,7 @@
 	- Says the best route could be to find a way to bind it? Make it a servant. 
 		- If Twoflower controls it, could be an opportunity to bring about access to demonic powers
 		- Likely can make a psionic connection in it
-			- In the Grease Pit, a friend of Elric, **Phillip**, can help Twoflower talk to the fungus.
+			- In [[The Grease Pit]], a friend of Elric, [[Philip]], can help Twoflower talk to the fungus.
 		- Elric can help with binding it. A failed binding could agitate it and accelerate its growth. 
 	- Twoflower agrees to trying a binding ritual. Elric says to come by again tomorrow.
 - Vodahmin and Salem have a private moment together. Have a genuine heart-to-heart.
