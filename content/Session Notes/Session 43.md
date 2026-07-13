@@ -10,9 +10,9 @@
 	- Motz gives us a few suggestions of leads:
 		- Suggests that Salem gets in contact with his goddess, Shalin, to help make sense of his two diverging versions
 		- Alternatively, track down that Khrusaor/Krii Se Ov guy
-		- Said he's been getting messages from [[Y’tash]], who believes that another assault on [[Roothold]] is inevitable and requested aid from the Five Flowers
-		- There's also a settlement in the Plane of Air, a floating nest of metal  ([[City of Ice and Steel]]), which is also worth taking a look into
-			- Mentions that he sent one of his assistants to Axis there to investigate, but hasn't heard back from them in a while.
+		- Said he's been getting messages from [[Y’tash Barkborn|Y'tash]], who believes that another assault on [[Roothold]] is inevitable and requested aid from the Five Flowers
+		- There's also a settlement in the Plane of Air, a floating nest of metal, which is also worth taking a look into
+			- Mentions that he sent one of his assistants to Axis (a city in Mechanis) there to investigate, but hasn't heard back from them in a while.
 	- Motz also has new information on [[The Scribes of Ragathiel]]
 		- Found a group in the plane of Hades, the Banehold (or Barrens of Doom and Despair), whose mission is to "purge divergent thought from the records of reality"
 		- Found a group who call themselves the "Scribes" in the plane of Mechanis

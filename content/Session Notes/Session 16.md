@@ -6,7 +6,7 @@
 	- Much drinking to be had. Nothing too much of note happens
 - [[Salem]] has a chat with the musicians he was jamming with
 	- They said they have vague memories of being a musician, but only have vague images
-	- Maybe [[Y’tash]] was once their mayor
+	- Maybe [[Y’tash Barkborn]] was once their mayor
 	- Remembers there was trade with outsiders in the before times. Would trade in hand-crafted goods and fruits
 		- Came from a larger forested area? Traded with interplanar beings?
 	- Says Gabriel may know of Salem’s goddess Shalen

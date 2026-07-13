@@ -10,7 +10,7 @@
 	- Twoflower “maybe” makes some kind of pact with the fungus. The fungus tries to force its way further into their mind, but Twoflower manages to keep it out for now
 	- Philip says that the fungus now doesn’t seem like it wants to kill Twoflower, but seems a lot more active now
 - We decide to head back to [[Motz Potluck]] to help him out with the developments in [[Roothold]]
-	- When arriving in Roothold, [[Y’tash]] says that the [[Terracon]] have been scouting their territory.
+	- When arriving in Roothold, [[Y’tash Barkborn|Y'tash]] says that the [[Terracon]] have been scouting their territory.
 	- The seat of the Terracon is located to the west of Roothold. Y’Tash has been spreading roots to prevent them from spreading any further.
 	- Y’Tash wants us to negotiate for the town’s survival on his behalf. Says he’s willing to have the town pay tribute to keep them off their backs.
 -  Y’Tash senses [[Atlan the Unshattered|Atlan]]’s forces encroaching and we head out to meet them at the edge of the forest

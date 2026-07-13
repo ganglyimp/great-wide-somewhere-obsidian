@@ -41,7 +41,7 @@
 		- And that’s what the professor was investigating
 	- The people appear human, but have like plant hair
 - After a bit of hesitation, we’re brought to a building in the center of the village to talk to this like statue guy
-	- He’s name’s [[Y’tash]], I think???
+	- He’s name’s [[Y’tash Barkborn]], I think???
 	- Bro I’ve just been blanking for this entire fucking session 
 		- There was a long winded discussion on something 
 	- Salem asks him about his own experiences of losing connection to his goddess and gaining connection to something larger

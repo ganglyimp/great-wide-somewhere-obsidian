@@ -24,3 +24,8 @@
 	- Can awaken it by giving it offerings of mortal blood, which can be done by just drinking some of it
 	- Advises against surgical removal, as that can be risky and result in lower quality of life. Exorcism is equally risky.
 	- He believes the best path forward is to bind it in a ritual and turn it into a servant of Twoflower.
+- Twoflower visits [[Philip]] to help them commune directly with the demon fungus (source: [[Session 44]])
+	- The fungus calls itself "Kreyalis"
+	- Is invested in Twoflower not dying, but wants to change Twoflower to make them "stronger"
+	- It wants to be fed more blood in exchange for not killing Twoflower
+	- Twoflower *maybe* makes some kind of pact with the fungus to not immediately kill them. In exchange for more blood? More change? This will likely have horrible consequences.
