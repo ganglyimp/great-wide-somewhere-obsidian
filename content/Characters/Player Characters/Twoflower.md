@@ -29,3 +29,5 @@
 	- Is invested in Twoflower not dying, but wants to change Twoflower to make them "stronger"
 	- It wants to be fed more blood in exchange for not killing Twoflower
 	- Twoflower *maybe* makes some kind of pact with the fungus to not immediately kill them. In exchange for more blood? More change? This will likely have horrible consequences.
+- After [[Sir Elric]] performs a violent séance, "Kreyalis" (Scourge of the Stars???) has had their consciousness sealed away (Source: [[Session 46]])
+	- Twoflower is left with demonic fungal mutations, just without an evil demon conscious in control of it. Progress?

@@ -20,3 +20,6 @@
 - When he visits his old friend [[Sir Elric]], Elric immediately gets a blistering headache (Source: [[Session 41]])
 	- Last time he saw him was 6 months ago. But has two conflicting memories: he remembers Salem's funeral, but also Salem being saved from death.
 	- Salem remembers investigating a necromancer shortly before he died. And then he "woke up" 2 months later.
+- When trying to commune with his goddess, Shalin, makes a prophetic(?) embroidery (Source: [[Session 46]])
+	-  Motifs of thorns and birds, and a dark figure in armor with specks of green on their plate. Some theme of duality.
+	- Sister Sienne says it's likely Shalin's brother (Zohn-Kathon), a god of pain and death. Their duality may be connected to what happened to Salem. She suggests maybe getting into contact with him

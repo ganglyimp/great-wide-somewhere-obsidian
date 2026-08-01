@@ -4,6 +4,7 @@
 | **Race**     | Human (formally multiple dragons) |
 - Has issues with conflicting memories that seem to have started only a few months ago, around the same time [[Salem]] has said he'd experienced similar issues
 - When dealing with an infestation of weird ugly little cranium rats, he burns through a metric fuck ton of them. He is now henceforth known as, "Rat Burner, Scourge of Rats" (Source: [[Session 18]])
+- Is amazing at glassblowing. Could probably make a living doing it. (Source: [[Session 46]])
 
 ## Dragon Drama
 - During the character backstory research interlude at The Library of the Spheres, Vodahmin looks into Mount Celestia (Source: [[Session 13]])

@@ -14,7 +14,7 @@
 		- [[Vodahmin]] turns out to be amazing at glassblowing
 	- Salem does some embroidery, and accidentally weaves some prophecies 
 		- Motifs of thorns and birds, and a dark figure in armor with specks of green on their plate. Some theme of duality.
-		- Sister Sienne says it's likely Shalin's brother (Zohn-Kathon), a god of pain and death. Their duality may be connected to what happened to Salem. She suggests maybe getting into contact with him. 
+		- [[Sister Sienne]] says it's likely Shalin's brother (Zohn-Kathon), a god of pain and death. Their duality may be connected to what happened to Salem. She suggests maybe getting into contact with him. 
 - Decide to try to track down the cult of Zohn-Kathon
 	- Vodahmin theorizes that Salem's alternative reality self may have been a practitioner of Zohn-Kathon
 - Start off by heading to the Gatehouse. This place is just depressing af
